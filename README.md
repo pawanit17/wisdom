@@ -6,6 +6,13 @@
     - We become what we keep saying to ourselves.
     - If it is not the thing, it would be the thing that leads to the thing.
 
+- Gary Vaynerchuk
+
+- David Goggins
+  - :zap: You can't hurt me
+
+
+
 - James Clear
   - :zap: Atomic Habits
   - :zap: https://www.youtube.com/watch?v=U_nzqnXWvSo
