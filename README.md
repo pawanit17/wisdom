@@ -34,6 +34,9 @@
     - You have two lives, the second starts when you realize that you only have one life - Confucious.
     - Playing 16 hours per week.
     - Those video games, news, apps are designed by hordes of genius phds and they eat your time & you are alone to fight it back by not wasting your time.
+  - :zap: https://www.youtube.com/watch?v=OwHeBvU6oEg
+    - Work on things that interest (area) you with people smarter in that field (people) and up your game fast (work hard). Example is Paypal Mafia.
+    - No matter how high your bar is, raise it further.
   - :zap: Almanack of Naval Ravikanth
     - TODO
 
